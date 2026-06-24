@@ -1,1 +1,0 @@
-# Leticia-Tarot-Reading
